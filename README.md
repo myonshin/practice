@@ -6,6 +6,8 @@ I am a Ph.D. candidate in Economics at Indiana University Bloomington. I expect 
 
 'Myong Jong' is my first name(Korean) and I go by 'MJ' for short(no middle name).
 
+Website is currently under construction and more materials will be updated soon!
+
 
 Email: myonshin[AT]iu[DOT]edu
 
