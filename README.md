@@ -19,36 +19,18 @@ Email: myonshin[AT]iu[DOT]edu
 <br />
 <br />
 <br />
-<br /><br />
-<br />
-<br />
-<br /><br />
-<br />
-<br />
-<br /><br />
-<br />
-<br />
-<br /><br />
-<br />
-<br />
-<br /><br />
 <br />
 <br />
 <br />
-<br /><br />
-<br />
-<br />
-<br /><br /><br />
-<br />
-<br />
-<br /><br /><br />
 <br />
 <br />
 <br />
-<br /><br />
 <br />
 <br />
-<br /><br /><br />
+<br />
+<br />
+<br />
+<br />
 <br />
 <br />
 <br />
